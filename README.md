@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @J-codeur
+- 👋 Hi, I’m @Jns-codeur
 - 👀 I’m interested in all about programming 
 - 🌱 I’m not in any group so i work alone at the moment  
 - 💞️ I’m looking to collaborate on 🤭
