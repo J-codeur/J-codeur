@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Jns-codeur
 - 👀 I’m interested in all about programming and web.
-- 🌱 I’m not in any group so i work alone at the moment  
+- 🌱 I cannot stop learning, it's my second life😓   
 - 💞️ I’m looking to collaborate on 🤭
 - 📫 How to reach me ? It's difficult. Guess🤨
 
